@@ -4,7 +4,7 @@
 - 📈 I’m currently growing my X account @omr0700
 - ⚽ Outside of coding, I enjoy playing football and cheering for Real Madrid.
 - 💬 Feel free to ask me anything.
-- 😄 My pronouns are he/him.
+- 😄 My pronouns: he/him.
 
 **FEEL FREE TO DM ME FOR ANYTHING!**
 
